@@ -1,2 +1,2 @@
 
-### [View the discussions here!](https://github.com/omg-games/omg-discussion/discussions)
+### ✨ [View the discussions here!](https://github.com/omg-games/omg-discussion/discussions) - OMG Discussion Board ✨
